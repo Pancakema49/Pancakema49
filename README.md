@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @TheRealPancakeman
+- 👀 I’m interested in C# and coding in general 
+- 🌱 I’m currently learning C#
+- 📫 You can reach me on discrod: the_real_pancakeman#0058
