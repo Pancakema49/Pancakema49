@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TheRealPancakeman
+- 👋 Hi, I’m @Pancakeman
 - 👀 I’m interested in coding 
-- 🌱 I’m currently learning Java
-- 📫 You can reach me on discrod: the_real_pancakeman#0058
+- 🌱 I’m currently learning nothing in particular
+- 📫 You can reach me on LinkedIn: 
