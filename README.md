@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Pancakeman49
 - 👀 I’m interested in coding 
 - 🌱 I’m currently learning nothing in particular
-- 📫 You can reach me on LinkedIn: https://www.linkedin.com/in/rolands-silins-662471267/
+- 📫 You can reach me on LinkedIn: https://www.linkedin.com/in/rolands-sili%C5%86%C5%A1-662471267
